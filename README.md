@@ -1,4 +1,1 @@
-裁判例
-
-[最高裁平成３０年２月１５日第一小法廷判決（イビデン事件）](https://www.courts.go.jp/app/files/hanrei_jp/458/087458_hanrei.pdf)
-
+![Web キャプチャ_7-5-2023_182528_](https://user-images.githubusercontent.com/131759620/236669279-3ecf400e-1eb4-41a2-877b-f350c73e8287.jpeg)
